@@ -9,6 +9,7 @@
 > Trilha Explorer
 
 
+[Focus-Timer.webm](https://github.com/Gisellebm/focus-timer-v2/assets/55713609/a58501ed-1ea6-4d80-b490-c9612c395055)
 
 <br/>
 
